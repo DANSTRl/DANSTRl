@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bruno+Ace&pause=1000&color=D60004&width=435&lines=place+me+in+boxes;wrap+me+by+hand)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Beau+Rivage&size=50&duration=3000&pause=100&color=73BBD6&center=true&width=600&height=100&lines=id+hope+to+see+their+faces+when+i+pursue;haunting+you)](https://git.io/typing-svg)
